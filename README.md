@@ -1,3 +1,5 @@
+![](https://cdn.discordapp.com/avatars/792331345917509652/ca00d579149e98b8575c91e16ea428cd.png?size=1024)
+
 ### Hello^^
 im Jikai, im a furry boy
 I love code and play vrchat,recroom,osu
