@@ -1,4 +1,4 @@
-![](https://cdn.discordapp.com/avatars/792331345917509652/ca00d579149e98b8575c91e16ea428cd.png?size=524)
+![](https://cdn.discordapp.com/avatars/792331345917509652/ca00d579149e98b8575c91e16ea428cd.png)
 
 ### Hello^^
 im Jikai, im a furry boy
