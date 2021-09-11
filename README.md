@@ -1,4 +1,4 @@
-![](https://cdn.discordapp.com/avatars/792331345917509652/ca00d579149e98b8575c91e16ea428cd.png)
+![](https://cdn.discordapp.com/avatars/792331345917509652/149108274471d05cb8be3554709013a9.webp?size=4096)
 
 ### Hello^^ JikaiSH#1332
 Hello, im Jikai, im a Femboy Furry
