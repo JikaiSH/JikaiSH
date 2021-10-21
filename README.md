@@ -2,8 +2,13 @@
 
 ### Hello^^ JikaiSH#1332
 𝟙JikaiSH
+
 𝟚French Furry boy
+
 𝟛https://jikaish.tk/
+
 𝟜The Furry Destiny (only furry): 
+
 𝟜.𝟙https://discord.gg/e9brmHQt8V
+
 𝟝♡Chara
