@@ -6,5 +6,5 @@
 # JikaiSH
 
 ## à propos de moi
-Salut je suis JikaiSH un Furry, j'adore beaucoup coder des bots discord et faire des sites internet ♥️
+Salut je suis JikaiSH un Furry, j'adore coder des bots discord et faire des sites internet ♥️
 J'adore aussi jouer à des jeux, parler avec mes amies et écouter de la musique :3
