@@ -5,6 +5,7 @@
 
 # JikaiSH
 
-## à propos de moi
-Salut je suis JikaiSH un Furry, j'adore coder des bots discord et faire des sites internet ♥️
-J'adore aussi jouer à des jeux, parler avec mes amies et écouter de la musique :3
+## About me
+Hi i'am JikaiSH im a french html/css/javascript developper !
+I make website, discord bot and betterdiscord plugins !
+(MORE INFORMATION SOON)
