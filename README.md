@@ -7,5 +7,5 @@
 
 ## About me
 - Hi i'am JikaiSH im a french furry html/css/javascript developper !
-- I make website, discord bot and betterdiscord plugins !
+- I make website, discord bot and [BetterDiscord](https://betterdiscord.app) plugins !
 - I dont talk a lot on social network but i'am active on.
